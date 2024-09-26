@@ -7,6 +7,8 @@ selam gencler karsiniz da bomba gibi repola geldik discord shen diye botcu var a
 
 simdi shen arkadasla wp konusmamizi atiyom iyi okuyun
 
+![image](https://github.com/user-attachments/assets/e179afde-7cbe-4403-b1b9-75c48ab2b680)
+
 ![image](https://github.com/user-attachments/assets/91d46c6f-c614-4ea9-8084-eb4f885be6b1)
 
 ![image](https://github.com/user-attachments/assets/40e11a88-18af-4b14-aca8-ce01501019bd)
