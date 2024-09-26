@@ -1,4 +1,2 @@
 selam gencler karsiniz da bomba gibi repola geldik discord shen diye botcu var acar alt yapisini alip az degistirip alt yapi bana ait diyor ama eski dostumdan yardim dilenirken ss leri atiyorum
-https://media.discordapp.net/attachments/1287008251447218270/1288620878472413264/Ekran_goruntusu_2024-09-24_144136.png?ex=66f681f6&is=66f53076&hm=224c834b45ed0e61f80f96e9f72b8521733aa246f59f26a9c77ef8e9c3f18bff&=&format=webp&quality=lossless
-https://media.discordapp.net/attachments/1287008251447218270/1288620879084912722/Ekran_goruntusu_2024-09-24_144157.png?ex=66f681f6&is=66f53076&hm=a22a88fd3c9e2ee6f68a60bc6fae04a3e8a09353091201fa9e19b9d169f9ac63&=&format=webp&quality=lossless
-https://media.discordapp.net/attachments/1287008251447218270/1288620880171372544/Ekran_goruntusu_2024-09-24_144209.png?ex=66f681f7&is=66f53077&hm=60e591bac925c27abeb6d82be643342aacfccadd566b4c2970f31e4eee1e383f&=&format=webp&quality=lossless
+![image](https://github.com/user-attachments/assets/7ddd4b52-ffdd-446d-856c-6ae300092c0b)
