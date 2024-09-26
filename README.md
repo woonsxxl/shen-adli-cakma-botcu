@@ -7,4 +7,16 @@ selam gencler karsiniz da bomba gibi repola geldik discord shen diye botcu var a
 
 simdi shen arkadasla wp konusmamizi atiyom iyi okuyun
 
+![image](https://github.com/user-attachments/assets/91d46c6f-c614-4ea9-8084-eb4f885be6b1)
+
+![image](https://github.com/user-attachments/assets/40e11a88-18af-4b14-aca8-ce01501019bd)
+
+bu repo acma sebebim de buna dost dedik kahbelik yapti dost ken acar botunu atmistim ona kullansin esek sipasi aldi gotu kalkti vs simdi repo acmis yalan seylerden vs
+eee bizde actik bot attigi hatalari duzeltmesi icin yazdigin ss leri attik bizle ugrasma bizde senle ugrasmayalim
+
+
+
+
+https://discord.gg/exception herkesi bekleriz
+
 
